@@ -1,4 +1,4 @@
-## Hi there 👋
+# <summary><strong>Halo gais :wave: , lagi belajar semoga tidak berakhir scroll fesnuk :indonesia: <p align="left">
 
 <!--
 **BYHWRB/BYHWRB** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
